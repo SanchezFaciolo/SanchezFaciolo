@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/c877fc2e-3ac6-4e6f-9eb4-d6f990231fee)## Bem vindos** 🌇
+## Bem vindos** 🌇
 
 **SanchezFaciolo*
 
