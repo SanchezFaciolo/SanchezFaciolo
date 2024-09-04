@@ -1,7 +1,12 @@
-## Bem vindos** 🌇
+![image](https://github.com/user-attachments/assets/c877fc2e-3ac6-4e6f-9eb4-d6f990231fee)## Bem vindos** 🌇
 
 **SanchezFaciolo*
 
 -**Estou** estudando _ALURA_
 
-![](https://media1.tenor.com/m/V5sNEEKVqlMAAAAC/power-chainsaw-man-chainsawman-eating-food.gif) ![](https://tenor.com/pt-BR/view/have-a-nice-day-good-morning-have-a-nice-day-chainsaw-man-asalam-o-alikum-gif-5025884993282300646)
+![](https://media1.tenor.com/m/V5sNEEKVqlMAAAAC/power-chainsaw-man-chainsawman-eating-food.gif)
+
+![](https://media1.tenor.com/m/N4Gbms6ymMcAAAAC/chainsaw-man-watching.gif)
+
+
+
